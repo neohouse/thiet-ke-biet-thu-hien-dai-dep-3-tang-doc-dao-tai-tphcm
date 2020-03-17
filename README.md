@@ -2,10 +2,6 @@
 
 =>Xem thêm: <a href="https://medium.com/@neohouse/m%E1%BA%ABu-bi%E1%BB%87t-th%E1%BB%B1-%C4%91%E1%BA%B9p-hi%E1%BB%87n-%C4%91%E1%BA%A1i-3-t%E1%BA%A7ng-%C4%91%E1%BB%99c-%C4%91%C3%A1o-t%E1%BA%A1i-qu%E1%BA%ADn-12-tphcm-17a63dd7a9bc">Mẫu biệt thự đẹp hiện đại 3 tầng độc đáo tại Quận 12 Tphcm</a>
 
-<img src="https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/9e2c8993876761.5e704e6b41195.jpg" srcset="https://mir-s3-cdn-cf.behance.net/project_modules/disp/9e2c8993876761.5e704e6b41195.jpg 600w, https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/9e2c8993876761.5e704e6b41195.jpg 1200w, https://mir-s3-
-
-cdn-cf.behance.net/project_modules/1400_opt_1/9e2c8993876761.5e704e6b41195.jpg 1400w, https://mir-s3-cdn-cf.behance.net/project_modules/fs/9e2c8993876761.5e704e6b41195.jpg 1400w" sizes="(max-width: 1200px) 100vw, 1200px" alt="Image may contain: outdoor, tree and sky" class="ImageElement-image-2K6">
-
 Mẫu </i><b>thiết kế biệt thự hiện đại 3 tầng</b></i> có tổng diện tích đất 10x20m và diện tích xây dựng 8,1x18,6m tại quận 12, Tphcm. Sau khi trao đổi về nhu cầu sử dụng cũng như phong cách kiến trúc cho ngôi nhà, các kiến trúc sư đã lên những phương án, ý tưởng thiết kế cùng cách bố trí mặt bằng công năng sao cho phù hợp với nhu cầu sử dụng cũng như thể hiện rõ được gu thẩm mỹ, cá tính của chủ đầu tư qua kiến trúc ngoại thất. Không phụ lòng mong mỏi của gia chủ, các kiến trúc sư đã đem đến cho gia đình chủ đầu tư một không gian sống độc đáo, hiện đại và riêng biệt tại khu vực nơi đây, nhận được nhiều đánh giá cao từ hàng xóm và cả chủ đầu tư, các thành viên trong gia đình.
 
 <b><a href="https://neohouse.vn/du-an/biet-thu-hien-dai/">Thiết kế biệt thự hiện đại</a> 3 tầng</b> sở hữu những hình khối vuông vắn, độc đáo của ngôi nhà được các kiến trúc sư NEOHouse thiết kế tạo sự khỏe khoắn, trẻ trung cho không gian ngoại thất của căn biệt thự. Kết hợp đường nét kiến trúc hiện đại cùng các vật liệu hiện đại được sử dụng tại không gian mặt tiền khiến ngôi nhà trở nên hài hòa và phù hợp với cuộc sống hiện đại ngày nay.
